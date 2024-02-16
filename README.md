@@ -1,1 +1,1 @@
-# Internal Assessments and Extended Essay
+# Math Projects
